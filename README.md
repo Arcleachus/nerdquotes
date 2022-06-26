@@ -1099,6 +1099,12 @@ La Esperanza.
 
 -------
 
+Another thing that freaks me out is time. Time is like a book. You have a beginning, a middle and an end. It's just a cycle.
+
+*Mike Tyson*
+
+-------
+
 > ¿Quieres saber la diferencia entre un maestro y un aprendiz? El maestro ha fallado más veces de las que el principiante lo ha intentado.
 
 *Yoda*
